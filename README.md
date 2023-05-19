@@ -1,1 +1,1 @@
-# Exercice-Cadavre-Exquis-Steeve
+Un soir de clair de lune, un petit chien enterre du chocolat au pays de Candy.Il était une fois une petite fille qui fesais une fête avec sa maman et ses amis. Pour la fête , elle va chercher des boissons dans la cave . La petite fille apercoit du sang sur le sol , elle regardit d'ou cela provenait , cela provenait d'une fouine blessée dans la plafond... ca coulait car le plafond avait un trou .
